@@ -4,7 +4,7 @@ Perkenalkan nama saya **Dwi Wahyu Riani**.\
 
 Saya seorang **Peserta SIB Cycle 4** di [Dicoding](https://www.dicoding.com/).\
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/yannriani/)ku ya
+Jika anda tertarik untuk mengenal saya, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/yannriani/) saya.
 
 <p align="left">
 <a href="https://github.com/yannriani">
