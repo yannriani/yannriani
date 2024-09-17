@@ -2,7 +2,7 @@
 
 Perkenalkan nama saya **Dwi Wahyu Riani**.\
 
-Saya seorang **Peserta SIB Cycle 5** di [Dicoding](https://www.dicoding.com/).\
+Saya seorang **Lulusan Baru Sistem Telekomunikasi** di Universitas Pendidikan Indonesia.\
 
 Jika anda tertarik untuk mengenal saya, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/yannriani/) saya.
 
